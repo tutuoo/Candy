@@ -27,9 +27,15 @@ https://www.payproapp.com/airdrop/yOEoYuPIDc
 ##### 8. PUMP candy
 https://pumptoken.org/?r=49834
 
+##### 9. GRAM 空投
+http://gram.plus/i/30402384
+
 ### Copy directly to the browser to open
 
 ##### 1. BITU.ONE 
 http://t.bitu.one/i/zxkrrw
 
+### Exchange invitation link
+##### 1. binance
+https://www.binance.com/?ref=16928861
 
