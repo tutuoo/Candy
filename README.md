@@ -37,10 +37,27 @@ http://gram.plus/i/30402384
 ##### 1. BITU.ONE 
 http://t.bitu.one/i/zxkrrw
 
+##### 2. candy 
+https://candy.one/i/134096
+
+##### 3. 公信宝手机挖矿App
+https://blockcity.pinever.com/#/?referUser=FXpSGIYsN4WhCoCJlkC087148503&v=1 
+体验矿工的挖矿感觉。
 
 ### 以下是主流交易所的邀请链接
 ##### 1. 币安
 https://www.binance.com/?ref=16928861
 
+
+
+
+
+注意!!!
+凡是要求输入私钥地址的都是骗子，请小心骗子！
+
+如果你想请我喝杯咖啡~
+你懂得~
+ETH : 0x367d713ef1c3e9d1a6d844e3ce9a7610bd6979ca
+<img src="http://opmmds7g1.bkt.clouddn.com/md/1518359792742.png" width="332"/>
 
 

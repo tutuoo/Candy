@@ -35,7 +35,22 @@ http://gram.plus/i/30402384
 ##### 1. BITU.ONE 
 http://t.bitu.one/i/zxkrrw
 
+##### 2. candy 
+https://candy.one/i/134096
+
+##### 3. Gxs App
+https://blockcity.pinever.com/#/?referUser=FXpSGIYsN4WhCoCJlkC087148503&v=1 
+
 ### Exchange invitation link
 ##### 1. binance
 https://www.binance.com/?ref=16928861
+
+### End
+Note!!!
+Anyone who requests to enter the private key address is a liar, please be careful liar!
+
+If you want to invite me a cup of coffee ~
+You know ~ 3Q
+ETH : 0x367d713ef1c3e9d1a6d844e3ce9a7610bd6979ca
+<img src="http://opmmds7g1.bkt.clouddn.com/md/1518359792742.png" width="332"/>
 
