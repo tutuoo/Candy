@@ -1,2 +1,4 @@
-# Candy
-Welcome friends from all over the world to get candy!
+# 糖果
+欢迎全球各地的朋友来获赠糖果!
+
+
