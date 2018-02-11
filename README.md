@@ -29,11 +29,18 @@ https://pumptoken.org/?r=49834
 电邮  钱包地址 提交
 加电报频道 关注推特  发推文
 
+##### 9. GRAM 空投
+http://gram.plus/i/30402384
 
 ### 以下糖果直接复制到浏览器打开即可等待空投
 
 ##### 1. BITU.ONE 
 http://t.bitu.one/i/zxkrrw
+
+
+### 以下是主流交易所的邀请链接
+##### 1. 币安
+https://www.binance.com/?ref=16928861
 
 
 
