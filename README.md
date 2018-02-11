@@ -46,8 +46,11 @@ https://goo.gl/qQ6KTw
 
 ##### 14. CNN 空投
 1、输入您的以太坊地址http://r.cnntoken.io/?c=a1b6bf 
+
 2、按指示关注twitter并转推
+
 3、加入电报群 https://t.me/CNN_Blockchain
+
 3、和机器人 @cnn_verify_bot  对话，输入你的验证码
 
 ##### 15. LUCKY 空投
