@@ -1,4 +1,4 @@
-# 糖果
+# 最新糖果(每日更新)
 [English](https://github.com/tutuoo/Candy/blob/master/README-en.md)
 欢迎全球各国的朋友们来获取糖果!  右上角点 star 关注多多糖果多多。
 
