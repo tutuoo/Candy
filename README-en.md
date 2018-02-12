@@ -2,6 +2,9 @@
 [简体中文](https://github.com/tutuoo/Candy/blob/master/README.md)
 Welcome friends from all over the world to get candy! Welcome click star.
 
+For other free airdrop tokens please Click ---> telegram
+https://t.me/joinchat/AAAAAFCLSvZQ93c-P1LM8A
+
 ### Join our telegram group and send code verify
 ##### 1. NTT candy
 http://refer.newtontree.co/?ref_code=i3m5scvi9u6es95x57winha681z1ijz1
@@ -68,6 +71,11 @@ www.s-i-p.io/chain/dEqN5BreqRkvdkjA
 
 ##### 22. LINO candy
 https://drop.lino.network?code=goELGPXm
+
+##### 23. LET candy
+https://spread.linkeye.com/index.html#/?referCode=sgIzGxDX
+##### Submit your UID of Huobi.pro so rewards can be sent, you will found UID in Account&Security page
+
 
 ### Copy directly to the browser to open
 ##### 1. BITU.ONE 

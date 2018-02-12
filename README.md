@@ -2,6 +2,9 @@
 [English](https://github.com/tutuoo/Candy/blob/master/README-en.md)
 欢迎全球各国的朋友们来获取糖果!  右上角点 star 关注多多糖果多多。
 
+第一时间收到糖果信息，请点击关注电报
+https://t.me/joinchat/AAAAAFCLSvZQ93c-P1LM8A
+
 ### 以下糖果需要加电报群发送验证码
 ##### 1. NTT 空投
 http://refer.newtontree.co/?ref_code=i3m5scvi9u6es95x57winha681z1ijz1
@@ -38,7 +41,7 @@ https://www.blockgo.cc/?i=6udi04KIEGZT4VAIF
 ##### 11. TBT 空投
 http://www.timechain.club/?code=840784057146dd2d
 
-##### 12. ETK 空投
+##### 12. EKT 空投
 http://activity.91xuexibao.com/dist/index.html?code=66304
 
 ##### 13. GSGC 空投
@@ -66,7 +69,6 @@ http://Refer-Twitter.data.eco/invite/1D2AzB5y
 ##### 19. iGift 空投
 https://igift.one/i/95117345148
 
-
 ##### 20. Cortex 空投
 http://airdrop.cortexlabs.ai/index?refer=E50629B3
 
@@ -75,6 +77,22 @@ www.s-i-p.io/chain/dEqN5BreqRkvdkjA
 
 ##### 22. LINO 空投
 https://drop.lino.network?code=goELGPXm
+
+##### 23. LET 空投
+https://spread.linkeye.com/index.html#/?referCode=sgIzGxDX
+输入火币UID，加入电报验证
+
+##### 24. GOLD 空投
+https://referral.goldchain.pro/?code=Tpwm8773MR
+
+##### 25. WFEE 空投
+http://yq_01496573.wfee.info/
+
+##### 26. AOT 空投
+http://www.mycandybag.net/aot/?code=6H85P3VV
+
+##### 27. CVT 空投
+www.cybervein.org/invite?invite=a81e3e4f
 
 ### 以下糖果直接复制到浏览器打开即可等待空投
 
