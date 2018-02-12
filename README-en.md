@@ -76,6 +76,17 @@ https://drop.lino.network?code=goELGPXm
 https://spread.linkeye.com/index.html#/?referCode=sgIzGxDX
 ##### Submit your UID of Huobi.pro so rewards can be sent, you will found UID in Account&Security page
 
+##### 24. GOLD 空投
+https://referral.goldchain.pro/?code=Tpwm8773MR
+
+##### 25. WFEE 空投
+http://yq_01496573.wfee.info/
+
+##### 26. AOT 空投
+http://www.mycandybag.net/aot/?code=6H85P3VV
+
+##### 27. CVT 空投
+www.cybervein.org/invite?invite=a81e3e4f
 
 ### Copy directly to the browser to open
 ##### 1. BITU.ONE 
