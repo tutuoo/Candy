@@ -27,44 +27,47 @@ https://www.payproapp.com/airdrop/yOEoYuPIDc
 ##### 8. PUMP candy
 https://pumptoken.org/?r=49834
 
-##### 9. GRAM 空投
+##### 9. GRAM candy
 http://gram.plus/i/30402384
 
-##### 10. BEAUTY 空投
+##### 10. BEAUTY candy
 https://www.blockgo.cc/?i=6udi04KIEGZT4VAIF
 
-##### 11. TBT 空投
+##### 11. TBT candy
 http://www.timechain.club/?code=840784057146dd2d
 
-##### 12. ETK 空投
+##### 12. ETK candy
 http://activity.91xuexibao.com/dist/index.html?code=66304
 
-##### 13. GSGC 空投
+##### 13. GSGC candy
 https://goo.gl/qQ6KTw
 
-##### 14. CNN 空投
+##### 14. CNN candy
 http://r.cnntoken.io/?c=a1b6bf 
 
-##### 15. LUCKY 空投
+##### 15. LUCKY candy
 http://candy.lucky.fun/?code=KDCHKJ8M4CNN
 
-##### 16. AIF 空投
+##### 16. AIF candy
 http://i.aifuns.io/aif/eth/JNFUQBUU
 
-##### 17. MEX 空投
+##### 17. MEX candy
 https://www.blockgo.cc/?i=78UG1UK0PBAHNP67L
 
-##### 18. DATA 空投
+##### 18. DATA candy
 http://Refer-Twitter.data.eco/invite/1D2AzB5y
 
-##### 19. iGift 空投
+##### 19. iGift candy
 https://igift.one/i/95117345148
 
-##### 20. Cortex 空投
+##### 20. Cortex candy
 http://airdrop.cortexlabs.ai/index?refer=E50629B3
 
-##### 21. SPIC 空投
+##### 21. SPIC candy
 www.s-i-p.io/chain/dEqN5BreqRkvdkjA
+
+##### 22. LINO candy
+https://drop.lino.network?code=goELGPXm
 
 ### Copy directly to the browser to open
 ##### 1. BITU.ONE 

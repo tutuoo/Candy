@@ -73,6 +73,9 @@ http://airdrop.cortexlabs.ai/index?refer=E50629B3
 ##### 21. SPIC 空投
 www.s-i-p.io/chain/dEqN5BreqRkvdkjA
 
+##### 22. LINO 空投
+https://drop.lino.network?code=goELGPXm
+
 ### 以下糖果直接复制到浏览器打开即可等待空投
 
 ##### 1. BITU.ONE 
