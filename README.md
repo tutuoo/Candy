@@ -103,6 +103,36 @@ https://woter.trade/?mref=28232
 ##### 30. ICST 空投
 http://service.icst.io:80/admin/web/toWallet?extendCode=62aef6a159084ba68ac59db491bba529
 
+##### 31. DATx 空投
+https://datx.co/bounty/invite/1cyf9j 
+
+##### 32. Bist 空投
+http://ref.bits.farm/?code=MTMwODM=
+
+##### 33. FishChain 空投
+https://candy.fishchain.io/?ref_code=d5c7ff5c80b14414a115d17bebe609f1
+
+##### 34. BEC 空投
+https://referral.beauty.io/YnmPQiTl
+
+##### 35. PEF 空投
+http://bot.pedif.com/?ic=WfYzuaMnyR
+
+##### 36. AAA 空投
+https://candy.aaa.capital/?code=0VYKVOSG8RDMN
+
+##### 37. DCC 空投
+https://www.blockgo.cc/?i=DCE83U8HDU1TXKE8S
+ 
+#####  38. CLASSY 空投
+http://www.classycoin.io/classycoin/index.php?ref=621461019
+
+##### 39. Cryptrivia 空投
+https://referral.cryptrivia.io/referral?referred_by=42d34ed3-2266-4db8-a8d6-2fb39794b7d6
+
+##### 40. AAT 空投
+http://www.mycandybag.net/aat/?code=UJ9F4Q1E
+
 ### 以下糖果直接复制到浏览器打开即可等待空投
 
 ##### 1. BITU.ONE 

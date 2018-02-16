@@ -97,6 +97,36 @@ https://woter.trade/?mref=28232
 ##### 30. ICST candy
 http://service.icst.io:80/admin/web/toWallet?extendCode=62aef6a159084ba68ac59db491bba529
 
+##### 31. DATx candy
+https://datx.co/bounty/invite/1cyf9j 
+
+##### 32. Bist candy
+http://ref.bits.farm/?code=MTMwODM=
+
+##### 33. FishChain candy
+https://candy.fishchain.io/?ref_code=d5c7ff5c80b14414a115d17bebe609f1
+
+##### 34. BEC candy
+https://referral.beauty.io/YnmPQiTl
+
+##### 35. PEF candy
+http://bot.pedif.com/?ic=WfYzuaMnyR
+
+##### 36. AAA candy
+https://candy.aaa.capital/?code=0VYKVOSG8RDMN
+
+##### 37. DCC candy
+https://www.blockgo.cc/?i=DCE83U8HDU1TXKE8S
+ 
+#####  38. CLASSY candy
+http://www.classycoin.io/classycoin/index.php?ref=621461019
+
+##### 39. Cryptrivia candy
+https://referral.cryptrivia.io/referral?referred_by=42d34ed3-2266-4db8-a8d6-2fb39794b7d6
+
+##### 40. AAT candy
+http://www.mycandybag.net/aat/?code=UJ9F4Q1E
+
 ### Copy directly to the browser to open
 ##### 1. BITU.ONE 
 http://t.bitu.one/i/zxkrrw
