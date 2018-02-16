@@ -94,6 +94,15 @@ http://www.mycandybag.net/aot/?code=6H85P3VV
 ##### 27. CVT 空投
 www.cybervein.org/invite?invite=a81e3e4f
 
+##### 28. OCN 空投
+http://www.ocoins.cc/bounty/invite/08ivvr 
+
+##### 29. WOT 空投
+https://woter.trade/?mref=28232
+
+##### 30. ICST 空投
+http://service.icst.io:80/admin/web/toWallet?extendCode=62aef6a159084ba68ac59db491bba529
+
 ### 以下糖果直接复制到浏览器打开即可等待空投
 
 ##### 1. BITU.ONE 
