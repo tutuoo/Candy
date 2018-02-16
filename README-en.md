@@ -100,7 +100,7 @@ http://service.icst.io:80/admin/web/toWallet?extendCode=62aef6a159084ba68ac59db4
 ##### 31. DATx candy
 https://datx.co/bounty/invite/1cyf9j 
 
-##### 32. Bist candy
+##### 32. SEED candy
 http://ref.bits.farm/?code=MTMwODM=
 
 ##### 33. FishChain candy
@@ -127,6 +127,32 @@ https://referral.cryptrivia.io/referral?referred_by=42d34ed3-2266-4db8-a8d6-2fb3
 ##### 40. AAT candy
 http://www.mycandybag.net/aat/?code=UJ9F4Q1E
 
+##### 41. EAR candy
+http://candy.ear.one/?code=/EAR15Z3187L9346X3
+
+##### 42. LEGIT candy
+http://legti.me/1066608
+
+##### 42. CellBlocks candy
+https://cellblocks.io/invite/?id=Ar9oTnj6
+
+##### 43. STB candy
+https://www.soft2b.com/telegram/index?parentId=158667
+
+##### 44. ZAT candy
+http://in.zatgo.net/?vc=zubx4epid6twtf54f
+
+##### 45. OPEN candy
+https://www.soft2b.com/telegram/index?parentId=158667
+
+##### 46. Crystal candy
+https://www.crystaltoken.co/register/tutu
+
+##### 47. ERP candy
+https://erpcoin.io/auth/register?ref=zzbjqBz5
+
+##### 48. PUMP
+http://pumptoken.org/?r=49834
 ### Copy directly to the browser to open
 ##### 1. BITU.ONE 
 http://t.bitu.one/i/zxkrrw
@@ -136,6 +162,12 @@ https://candy.one/i/134096
 
 ##### 3. Gxs App
 https://blockcity.pinever.com/#/?referUser=FXpSGIYsN4WhCoCJlkC087148503&v=1 
+
+##### 4. Project  360 Cat
+Introduction：360 Cat based on the block chain, appointment to send 1 generations of cats, invite 10 people to send 0 generation of cats, limited 50000. The page is only chinese
+Airdrop step：
+http://huodong.mobilem.360.cn/html/kitty2018.html?sharekey=215591_5a8482072b6e7_c43f05930b34f9cd4013f1634121d269&fid=215591
+Register with Tel for code
 
 ### Exchange invitation link
 ##### 1. binance

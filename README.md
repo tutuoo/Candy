@@ -106,7 +106,7 @@ http://service.icst.io:80/admin/web/toWallet?extendCode=62aef6a159084ba68ac59db4
 ##### 31. DATx 空投
 https://datx.co/bounty/invite/1cyf9j 
 
-##### 32. Bist 空投
+##### 32. SEED 空投
 http://ref.bits.farm/?code=MTMwODM=
 
 ##### 33. FishChain 空投
@@ -133,6 +133,33 @@ https://referral.cryptrivia.io/referral?referred_by=42d34ed3-2266-4db8-a8d6-2fb3
 ##### 40. AAT 空投
 http://www.mycandybag.net/aat/?code=UJ9F4Q1E
 
+##### 41. EAR 空投
+http://candy.ear.one/?code=/EAR15Z3187L9346X3
+
+##### 42. LEGIT 空投
+http://legti.me/1066608
+
+##### 42. CellBlocks 空投
+https://cellblocks.io/invite/?id=Ar9oTnj6
+
+##### 43. STB 空投
+https://www.soft2b.com/telegram/index?parentId=158667
+
+##### 44. ZAT 空投
+http://in.zatgo.net/?vc=zubx4epid6twtf54f
+
+##### 45. OPEN 空投
+https://www.soft2b.com/telegram/index?parentId=158667
+
+##### 46. Crystal 空投
+https://www.crystaltoken.co/register/tutu
+
+##### 47. ERP 空投
+https://erpcoin.io/auth/register?ref=zzbjqBz5
+
+##### 48. PUMP 空投
+http://pumptoken.org/?r=49834
+
 ### 以下糖果直接复制到浏览器打开即可等待空投
 
 ##### 1. BITU.ONE 
@@ -144,6 +171,11 @@ https://candy.one/i/134096
 ##### 3. 公信宝手机挖矿App
 https://blockcity.pinever.com/#/?referUser=FXpSGIYsN4WhCoCJlkC087148503&v=1 
 体验矿工的挖矿感觉。
+
+##### 4. 360区块链猫
+项目简介：360手机助手出的基于区块链的猫，预约送1代猫，邀请10个人送0代猫，限量5W只，大家速度。
+吃猫步骤：
+http://huodong.mobilem.360.cn/html/kitty2018.html?sharekey=215591_5a8482072b6e7_c43f05930b34f9cd4013f1634121d269&fid=215591
 
 ### 以下是主流交易所的邀请链接
 ##### 1. 币安
