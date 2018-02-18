@@ -160,6 +160,30 @@ https://erpcoin.io/auth/register?ref=zzbjqBz5
 ##### 48. PUMP 空投
 http://pumptoken.org/?r=49834
 
+##### 49. CTE 空投
+http://g.ctegame.com/airdrop/?code=3E6vYYE
+
+##### 50. WMT 空投
+http://www.mycandybag.net/wmt/?code=8AQKR6KS
+
+##### 51. GENE 空投
+https://candy.genechain.plus/?code=BFLo6056ag
+
+##### 52. YNH 空投
+http://airdrop.ynhchain.info/?code=0438fcce6c4cdce4
+
+##### 53. XTC 空投
+https://app.stakingcoin.com/r/816u21
+
+##### 54. Cryptobnb 空投
+http://vy.tc/enQuZ42
+
+##### 55. ANN 空投
+https://tokensale.agentnotneeded.com/register
+
+##### 56. MAXDATA
+https://airdrop.maxdata.io/?kid=M6ZFH
+
 ### 以下糖果直接复制到浏览器打开即可等待空投
 
 ##### 1. BITU.ONE 

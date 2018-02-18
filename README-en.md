@@ -151,8 +151,33 @@ https://www.crystaltoken.co/register/tutu
 ##### 47. ERP candy
 https://erpcoin.io/auth/register?ref=zzbjqBz5
 
-##### 48. PUMP
+##### 48. PUMP candy
 http://pumptoken.org/?r=49834
+
+##### 49. CTE candy
+http://g.ctegame.com/airdrop/?code=3E6vYYE
+
+##### 50. WMT candy
+http://www.mycandybag.net/wmt/?code=8AQKR6KS
+
+##### 51. GENE candy
+https://candy.genechain.plus/?code=BFLo6056ag
+
+##### 52. YNH candy
+http://airdrop.ynhchain.info/?code=0438fcce6c4cdce4
+
+##### 53. XTC candy
+https://app.stakingcoin.com/r/816u21
+
+##### 54. Cryptobnb candy
+http://vy.tc/enQuZ42
+
+##### 55. ANN candy
+https://tokensale.agentnotneeded.com/register
+
+##### 56. MAXDATA candy
+https://airdrop.maxdata.io/?kid=M6ZFH
+
 ### Copy directly to the browser to open
 ##### 1. BITU.ONE 
 http://t.bitu.one/i/zxkrrw
