@@ -118,7 +118,7 @@ https://candy.aaa.capital/?code=0VYKVOSG8RDMN
 ##### 37. DCC candy
 https://www.blockgo.cc/?i=DCE83U8HDU1TXKE8S
  
-#####  38. CLASSY candy
+##### 38. CLASSY candy
 http://www.classycoin.io/classycoin/index.php?ref=621461019
 
 ##### 39. Cryptrivia candy
@@ -177,6 +177,27 @@ https://tokensale.agentnotneeded.com/register
 
 ##### 56. MAXDATA candy
 https://airdrop.maxdata.io/?kid=M6ZFH
+
+##### 57. BCV candy
+https://bitcv.saas.lianbi.io/invite?code=43208
+
+##### 58. ZONTO candy
+https://zonto.world/z115842
+
+##### 59. CCRB candy
+https://ccrb.io/affiliate/906402
+
+##### 60. Gems candy
+http://www.gems.place/promote?pcode=akGM07&user=2867
+
+##### 61. WCXT candy
+https://ico.wcex.co/?ref=5dqCXrV
+
+##### 62. Red Pocket candy
+http://referral.redpocket.network/UMJoEcak
+
+##### 63. THT candy
+https://tradershub.io/register/?rf=dd7591000c
 
 ### Copy directly to the browser to open
 ##### 1. BITU.ONE 

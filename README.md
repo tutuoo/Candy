@@ -181,8 +181,29 @@ http://vy.tc/enQuZ42
 ##### 55. ANN 空投
 https://tokensale.agentnotneeded.com/register
 
-##### 56. MAXDATA
+##### 56. MAXDATA 空投
 https://airdrop.maxdata.io/?kid=M6ZFH
+
+##### 57. BCV 空投
+https://bitcv.saas.lianbi.io/invite?code=43208
+
+##### 58. ZONTO 空投
+https://zonto.world/z115842
+
+##### 59. CCRB 空投
+https://ccrb.io/affiliate/906402
+
+##### 60. Gems 空投
+http://www.gems.place/promote?pcode=akGM07&user=2867
+
+##### 61. WCXT 空投
+https://ico.wcex.co/?ref=5dqCXrV
+
+##### 62. Red Pocket 空投
+http://referral.redpocket.network/UMJoEcak
+
+##### 63. THT 空投
+https://tradershub.io/register/?rf=dd7591000c
 
 ### 以下糖果直接复制到浏览器打开即可等待空投
 
