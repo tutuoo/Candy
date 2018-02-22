@@ -199,6 +199,72 @@ http://referral.redpocket.network/UMJoEcak
 ##### 63. THT candy
 https://tradershub.io/register/?rf=dd7591000c
 
+##### 64. DX
+https://wn.nr/PkTxZ8
+
+##### 65.BTN
+关注推特 https://t.co/96shKttbTt
+转发并回复ETH地址给推文https://t.co/r1TyC69idv
+
+##### 66. Yoo-Mi
+http://vy.tc/eoFoZ15
+
+##### 67. BTSG
+https://bitsong.io/start/2RYITQ3A
+
+##### 68. KK
+https://list.kkcoin.com/coin/teleinvite?t=ljtap37s7hdawsr3
+
+##### 69.BssPoints
+www.bitssion.top/i?755877
+
+##### 70. CRNC
+https://referral.current.us/?mwr=6402-e3e719b6
+
+##### 71. Elementh
+https://click.elementh.io/go/21158
+
+##### 72. CCC
+http://ggt.io/ccc/invite/05ca19264
+
+##### 73. CLR
+https://telegram.me/ClearCoinBot?start=NDY4MjI2NzM4
+
+##### 74. ARBT
+http://bounty.arabtoken.net/index.php?invcod=23956
+
+##### 75. BTNT
+http://bitnautic.io/en/register?ref=bTdAHsATgzZptL0s
+
+##### 76. VAC
+http://validcoin.co/my-account?mref=7772
+
+##### 77. ælf
+https://candy.aelf.io/account/register?invitationCode=0W1NaS299U9S
+
+##### 78. DNN
+http://telegram.me/DNNMediaBounty_Bot/?start=536073093
+
+##### 79. Sphere
+https://sphere.social/?ref_code=zzgdpud2r6z0
+
+##### 80. friendz
+https://steward.friendz.io/go?r=MzQyNjc2
+
+##### 81. bitdark
+http://vy.tc/eokwV34
+
+##### 82. THUG
+https://t.me/THUGAirDropBot?start=tutu_vv 
+
+##### 83. PHNX
+https://phnxtoken.com/?r=16408
+
+##### 84. BOE
+http://www.mycandybag.net/boe/?code=9DQSM9BI
+
+##### 85. PHRM
+https://pharmz.io/invite/?id=gruNzxK1
 ### Copy directly to the browser to open
 ##### 1. BITU.ONE 
 http://t.bitu.one/i/zxkrrw
