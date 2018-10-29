@@ -1,7 +1,7 @@
 # Candy
 [简体中文](https://github.com/tutuoo/Candy/blob/master/README.md)
 Welcome friends from all over the world to get candy! Welcome click star.
-
+aaa
 ### Join our telegram group and send code verify
 ##### 1. NTT candy
 http://refer.newtontree.co/?ref_code=i3m5scvi9u6es95x57winha681z1ijz1
