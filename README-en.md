@@ -1,10 +1,10 @@
 2# Candy(update)
 [简体中文](https://github.com/tutuoo/Candy/blob/master/README.md)
 Welcome friends from all over the world to get candy! Welcome click star.
-1281
+
 For other free airdrop tokens please Click ---> telegram
 https://t.me/joinchat/AAAAAFCLSvZQ93c-P1LM8A
-11111
+
 ### Join our telegram group and send code verify
 ##### 1. NTT candy
 http://refer.newtontree.co/?ref_code=i3m5scvi9u6es95x57winha681z1ijz1
